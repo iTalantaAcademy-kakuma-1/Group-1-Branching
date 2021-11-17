@@ -12,3 +12,6 @@ I am currently taking training for job opportunities. i have gained more content
 ![faiso](image\91128983.png)
 
 
+by faiso abdirisak
+
+
